@@ -11,8 +11,6 @@
 
 - 📫 How to reach me **yty0202@163.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/tianyang-yu/](https://www.linkedin.com/in/tianyang-yu/)
-
 - ⚡ Fun fact **In Australia, there are more kangaroos than people!**
 
 <h3 align="left">Connect with me:</h3>
